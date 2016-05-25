@@ -1,4 +1,4 @@
-# Tales from the Froaky Forest
+# 𝖙𝖍𝖊 𝖈𝖍𝖗𝖔𝖓𝖎𝖈𝖑𝖊𝖘 𝖔𝖋 𝖋𝖗𝖔𝖆𝖐𝖞 𝖋𝖔𝖗𝖊𝖘𝖙
 
 A camping cookzine for hungry ghosts, woodland witches, and the queer coven of
 froaky forest.
