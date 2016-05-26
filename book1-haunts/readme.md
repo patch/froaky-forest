@@ -2,4 +2,4 @@
 
 ## Woodland Recipes for Hungry Ghosts
 
-Expected publication: 2016
+Expected publication: Summer/Autumn 2016

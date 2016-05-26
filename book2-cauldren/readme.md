@@ -2,4 +2,4 @@
 
 ## Vegan Spells for Hungry Witches
 
-Expected publication: 2017
+Expected publication: Winter/Spring 2017

@@ -5,6 +5,7 @@ froaky forest.
 
 * Book №1: [Haunts of the Froaky Forest](book1-haunts)
 * Book №2: [Cauldron of the Dark Woods](book2-cauldren)
+* Book №3: [Queer Visitors to the Marvelous Froaky Forest](book3-visitors)
 
 ---
 
