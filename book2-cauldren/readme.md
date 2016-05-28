@@ -1,4 +1,4 @@
-# Cauldron of the Dark Woods
+# Dark Cauldron of the Froaky Forest
 
 ## Vegan Spells for Hungry Witches
 
